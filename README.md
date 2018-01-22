@@ -1,0 +1,2 @@
+# Add-Some-Crunch-To-Your-Summer-Diet-With-These-10-Salads
+Here are Top 10 Salads Healthy Easy Recipe you can choose in your Summer Diet. To stay fit and healthy. This is the vegetable Recipe for salad one can go with this are also low-calorie recipes like Chickpea &amp; Spinach, Mango-Melon-Tomato, Beetroot-Feta-Quinoa, Mixed Greens, Sweet Potato &amp; Pomegranate, Mango &amp; Chicken, Mexican Salad, Strawberry &amp; Cucumber, Kale &amp; Blueberry, and Grilled Peach &amp; Avocado.
